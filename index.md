@@ -3,10 +3,9 @@ Mountains in the UK
 
 England is not very mountainous.
 
-Scotland has bigger mountains than England.
-
 Mount fictional is the tallest mountain in Bucks.
 
+A lie about a mountain
 Scafell pike is tall.
 
 But it has some tall hills,
