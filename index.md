@@ -7,7 +7,6 @@ Mount fictional is the tallest mountain in Bucks.
 
 hello
 
-A lie about a mountain
 Scafell pike is tall.
 
 But it has some tall hills,
